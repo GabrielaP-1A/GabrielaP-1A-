@@ -7,5 +7,8 @@ Meu nome é Gabriela
 - Esse perfil foi criado para concluir meus cursos
 
  *Perfil para fins pedagógicos*
-![](https://tenor.com/pt-BR/view/chip-chipi-chipi-chapa-chapa-chipi-chipi-chapa-chapa-cat-chipi-chipi-chapa-chapa-cat-gif-rickroll-gif-13054688465653025022) 
-![](https://tenor.com/pt-BR/view/cat-sushi-3d-cartoon-cat-3d-cat-sushi-cat-gif-4805886171793682057)
+
+
+![](https://media1.tenor.com/m/jmdUY9TVm5IAAAAd/cat-the-voices.gif)
+![](https://media.tenor.com/QrHwArS5bokAAAAi/cat-sushi.gif)
+![](https://media1.tenor.com/m/KKOWa1hlWZcAAAAd/cat.gif)
